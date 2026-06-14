@@ -136,7 +136,7 @@ Codeforces Profile
 
 > "Learn. Build. Iterate. Repeat."
 
-— Deekshith K M 🚀
+
 
 ---
 
